@@ -1,0 +1,6 @@
+- 👋 Howdy, I’m @MrRogvirr
+- 👀 I’m interested in character art, game design, and voice acting
+- 🌱 I’m currently learning how to mod Stardew Valley
+- 📫 Reach me at yurikalad14@gmail.com if you need anything
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I'm terrified of spiders
